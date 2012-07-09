@@ -1,3 +1,3 @@
 # twoface.js
 
-![Two Face](http://24.media.tumblr.com/tumblr_m6ge4xNsln1qb82q8o1_1280.jpg)
+![Two Face](http://f.cl.ly/items/2r1I1d3F3J453q382p2b/Tommy-Lee-Jones-Two-Face.jpg)
